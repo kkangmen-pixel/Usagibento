@@ -43,6 +43,27 @@
 미미는 여기서 오른쪽 하단, 사과 카펫이 있는 곳이 주방이기에, 거기로 가야지 일을 할 수 있어요
 
 
+<img width="969" height="550" alt="Image" src="https://github.com/user-attachments/assets/1a57970f-2eb5-444d-8b6c-c57bcc7229a9" />
+
+어라? 손님이 벌써 오셨군요! 미미의 가게 손님은 2명이랍니다!
+
+손님들이 아직 도시락 가게가 있는 줄 몰라서 그런가봐요 ⁎●᷄⩊●᷅⁎
+
+
+
+<img width="971" height="540" alt="Image" src="https://github.com/user-attachments/assets/90d733f0-857d-4ccd-9729-9cd82caf6476" />
+
+손님은 순서대로 주문을 해요! 순서는 지키는 멋진 손님들이군요
+
+미미는 손님의 주문을 받고 - 도시락을 만든 후 전달 - 다음 손님 등장 이 순서대로랍니다
+
+
+<img width="1228" height="691" alt="Image" src="https://github.com/user-attachments/assets/8abb2be5-c1ce-4d4c-9a78-c339072be849" />
+
+
+손님들의 주문을 받으, 응원과 감사를 받을 수 있어요 ദ്ദി❁´ω`❁) 미미 파이팅!
+
+<img width="1230" height="686" alt="Image" src="https://github.com/user-attachments/assets/d6251d74-6e2a-4ddb-b0f2-dc9302a77022" />
 
 
 
