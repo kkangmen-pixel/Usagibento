@@ -110,7 +110,12 @@
 도시락 가게가 유명해졌으면 좋겠어요! 
 
 
+![Image](https://github.com/user-attachments/assets/d1a7375a-cf95-4d33-8976-7b79f756cf6c)
 
-🐰 미미
+
+
+🐶 시고르
+
+시고르는 초등학생입니다! 부모는 시골에서 농사를 지으시나보내요!
 
 
