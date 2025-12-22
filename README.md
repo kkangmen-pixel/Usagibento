@@ -104,7 +104,13 @@
 <img width="422" height="643" alt="Image" src="https://github.com/user-attachments/assets/d7efea94-349e-4e91-ba33-6acde18ad0cc" />
 
 🐰 미미 
+
 미미는 전세사기를 당해서 돈을 벌어야하는 불쌍한 토끼랍니다. 
 
+도시락 가게가 유명해졌으면 좋겠어요! 
+
+
+
+🐰 미미
 
 
