@@ -7,6 +7,12 @@
 
 
 
+
+🐰게임 플레이  itch.io🐰
+
+https://munjji.itch.io/usagibento
+
+
 🐰게임 스토리🐰
 
 
